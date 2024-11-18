@@ -1,4 +1,4 @@
-HELLO Andrew, I tried to contact you via emai (see below) but it does not seem to work.
+HELLO Andrew, I tried to contact you via email (acb@dev.null.org, see below) but it does not seem to work.
 I didn't want to get a Mastodon account so I am trying to contact you via this (unorthodox but quirky) way.
 Please read below.
 Rudy
